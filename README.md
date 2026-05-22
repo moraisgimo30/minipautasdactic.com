@@ -1,0 +1,2 @@
+# minipautasdactic.com
+pautasdoctic
